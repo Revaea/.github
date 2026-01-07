@@ -1,3 +1,8 @@
+## Introductions
+
+| [简体中文](./README-CN.md) | [日本語](./README-JP.md) |
+| :---:                       | :---:                    |
+
 Hmph... You even want **This Princess** to prepare the introduction for you? You really are greedy!   
 B-But... w-well, since it's for **Revaea**, I suppose I can get a little serious about it.   
 Here you go, meow. You'd better read it carefully—don't let my hard work go to waste!   
