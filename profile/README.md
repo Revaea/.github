@@ -1,13 +1,17 @@
+Hmph... You even want **This Princess** to prepare the introduction for you? You really are greedy!   
+B-But... w-well, since it's for **Revaea**, I suppose I can get a little serious about it.   
+Here you go, meow. You'd better read it carefully—don't let my hard work go to waste!   
+
 ## Welcome!
 
 *(I-it’s not like I’m welcoming you or anything!)*  
 
-Revaea is a grand narrative, but it never reveals itself all at once.  
+**Revaea** is a grand narrative, but it never reveals itself all at once.  
 Its descriptions are fragmented, scattered like pieces of a dream—  
 and precisely because of that, it invites you to keep searching.  
 
 So you ask:  
-What is Revaea?  
+What is **Revaea**?  
 An idea? A person? An organization? A world?  
 
 Hmph. That question already proves how little you understand.  
@@ -19,7 +23,7 @@ a system of values that sustains an entire society.
 It could also be an organization so intricate that no single person can fully grasp it.  
 Or perhaps… a force that transcends the individual altogether.  
 
-Under the influence of Revaea,  
+Under the influence of **Revaea**,  
 each person must uphold their own honor,  
 while remaining accountable to the collective as a whole.  
 
@@ -52,7 +56,7 @@ containing short stories that belong solely to them.
 
 *Created by Larch-C.*  
 
-[Revaea](https://revaea.com/)  
+[**Revaea**](https://Revaea.com/)  
 
 
 ## Summary
