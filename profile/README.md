@@ -85,8 +85,6 @@ containing short stories that belong solely to them.
 
   * **(A long road, yet dreams remain alive… hmph, not a bad phrase.)**  
 
-> The above content is fictional and does not reflect any real-world facts.  
-
 
 ## About WentUrc  
 
@@ -112,3 +110,6 @@ Hmph. I’ve said more than enough.
 If you can truly understand all this—  
 then maybe, just maybe,  
 you’re not as hopeless as you look, nya ~  
+
+
+> The above content is fictional and does not reflect any real-world facts.  
