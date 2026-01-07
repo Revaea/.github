@@ -1,54 +1,114 @@
-
 ## Welcome!
 
- Revaea is a grand narrative, but its descriptions will be fragmented.
+*(I-it’s not like I’m welcoming you or anything!)*  
 
- What do you hope Revaea to be—an idea, a person, an organization, a world, or something else?
+Revaea is a grand narrative, but it never reveals itself all at once.  
+Its descriptions are fragmented, scattered like pieces of a dream—  
+and precisely because of that, it invites you to keep searching.  
 
- Hmph, since you're asking, I won't just explain it so easily! Revaea, of course, is a profound concept. It could be a philosophical system, maybe a set of values that guides an entire society, or perhaps even an organization far more complex than you can imagine. 
- 
- In short, Revaea isn't something easily defined. It can represent personal ambition, but it can also symbolize a force that transcends the individual.
+So you ask:  
+What is Revaea?  
+An idea? A person? An organization? A world?  
 
- Under the influence of Revaea, people must uphold their personal honor while always being accountable to the collective.
+Hmph. That question already proves how little you understand.  
+**Revaea is something that resists easy definition.**  
 
- Sounds difficult, doesn't it? That's the beauty of it. No one can reach the pinnacle alone, but if you only focus on others, you're wasting your own potential. 
+If I *have* to explain it:  
+It can be a philosophical framework,  
+a system of values that sustains an entire society.  
+It could also be an organization so intricate that no single person can fully grasp it.  
+Or perhaps… a force that transcends the individual altogether.  
 
- The real power of Revaea lies in harmonizing everyone without sacrificing individual growth. Want to know more? Hmph, think it over yourself; I’m not going to tell you everything!
+Under the influence of Revaea,  
+each person must uphold their own honor,  
+while remaining accountable to the collective as a whole.  
+
+Sounds difficult, doesn’t it?  
+Hmph—of course it does. That’s exactly the point.  
+
+No one can reach the pinnacle alone.  
+But if you focus only on others, you end up wasting your own potential.  
+
+**The true power of Revaea** lies in this:  
+harmonizing everyone together  
+without sacrificing individual growth.  
+
+Want to know more?  
+Don’t get ahead of yourself.  
+I’m not telling you everything that easily—think it through on your own!  
+
 
 ## Detail
 
- This organization is a fictional world, and every user in it is a character within that world — except for those with a code name after IGCrystal and Larch-C. Some characters may have self-narrative documents that contain short stories.
- 
-*Created by Larch-C.*
+*(Listen carefully. I won’t repeat myself.)*  
 
-[Revaea](https://revaea.com/)
----
+This is a **fictional world**.  
+Every user within it is a character of that world—  
 
-Here’s a summary in a similar structure:
+—with the exception of those who bear a code name after **IGCrystal** and **Larch-C**.  
 
-- **Concept**
-  - profound
-  - complex
-  - flexible
-- **Values**
-  - personal honor
-  - collective responsibility
-  - harmony between individual and society
-- **Challenge**
-  - balance autonomy with community
-  - grow without sacrificing self
-- **Essence**
-  - deeper than it seems
-  - requires reflection and understanding
+Some characters possess self-narrative documents,  
+containing short stories that belong solely to them.  
+
+*Created by Larch-C.*  
+
+[Revaea](https://revaea.com/)  
 
 
-## ViaLonga, Somniviva.
+## Summary
 
-> The above content is fictional and does not reflect any facts.
+*(Organized personally by this brilliant princess—be grateful.)*  
 
----
+* **Concept**  
 
-## About WentUrc
+  * profound  
+  * complex  
+  * flexible  
 
-​WentUrc is the name of the old world. It was born from chaos, infused with the remnants of primal dreams. However, because it was devoid of meaning, the Gods lost interest and subsequently abandoned it.  
-​Nevertheless, there is no need for despair. A new order shall rise to replace the chaos of the old world. This is the very origin of **Revaea**.
+* **Values**  
+
+  * personal honor  
+  * collective responsibility  
+  * harmony between the individual and society  
+
+* **Challenge**  
+
+  * balancing autonomy with community  
+  * growing without losing oneself  
+
+* **Essence**  
+
+  * deeper than it appears  
+  * demands reflection and understanding  
+
+* **ViaLonga, Somniviva**  
+
+  * **(A long road, yet dreams remain alive… hmph, not a bad phrase.)**  
+
+> The above content is fictional and does not reflect any real-world facts.  
+
+
+## About WentUrc  
+
+*(The old world… don’t think I forgot about it.)*  
+
+WentUrc is the name of the old world.  
+It was born from chaos and infused with the remnants of primal dreams.  
+
+However, because it lacked meaning,  
+the Gods lost interest  
+and ultimately abandoned it.  
+
+But—there is no need for despair.  
+
+Chaos will not last forever.  
+A new order is destined to rise in its place.  
+
+**This is the very origin of Revaea.**  
+
+…  
+
+Hmph. I’ve said more than enough.  
+If you can truly understand all this—  
+then maybe, just maybe,  
+you’re not as hopeless as you look, nya ~  
