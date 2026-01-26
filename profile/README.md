@@ -1,5 +1,5 @@
 <a href="https://revaea.com">
-  <img src="https://raw.githubusercontent.com/Xirayu/O/2c27afbfd9af713afd5a60fedee6c65188637fbf/io.svg" width="100%">
+  <img src="https://raw.githubusercontent.com/Revaea/.github/refs/heads/main/img/Revaea-l.png" width="100%">
 </a>
 
 ## Introductions
