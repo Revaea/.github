@@ -58,7 +58,7 @@ I’m not telling you everything that easily—think it through on your own!
 This is a **fictional world**.  
 Every user within it is a character of that world—  
 
-—with the exception of those who bear a code name after **IGCrystal** and **Larch-C**.  
+—with the exception of those who bear a code name after **IZCherry** and **Larch-C**.  
 
 Some characters possess self-narrative documents,  
 containing short stories that belong solely to them.  
